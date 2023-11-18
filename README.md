@@ -1,1 +1,0 @@
-# Mem.MODO4Klass
